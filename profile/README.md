@@ -1,0 +1,1 @@
+Strataroh Ventures was cofounded by Sreenivasa Pai (Ex – Atomberg, Ex – Bajaj Auto) & Aniruddha Ranade (Ex – Atomberg, Ex – ISRO) with the vision to accelerate access to innovative technology solutions for the Indian manufacturing industry.
